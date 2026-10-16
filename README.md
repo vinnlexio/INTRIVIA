@@ -10,3 +10,7 @@ Rangkaiannya bermanfaat + insightful bangettt, banyak materi yang kasih pembekal
 
 ## Kesan Pesan Cluster 6 Sejauh Ini 
 Temen temennya fun, supportive, mentor juga responsif banget buat ngebantu ketika ada kebutuhan penting terkait ospek. respect cluster 6!!
+
+
+## Harapan Kuliah
+Harapannya, semoga selama kuliah disini, saya bisa ikutin semua prosesnya dengan maksimal, tetep excel dalam segala bidang, bisa lulus tepat waktu, dan lulus ngga cuma dengan gelar Sarjana, tapi lulus dengan sukses.
